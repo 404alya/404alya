@@ -12,9 +12,9 @@ I can create mobile apps, websites, desktop apps and backend services. I like to
 - Stack overflow: https://stackoverflow.com/users/22740544/404nnotfoundd
 
 
-<img src="https://notfound404.dev/images/svg/kotlin.svg" width="30" height="30" />
-<img src="https://notfound404.dev/images/svg/typescript.svg" width="30" height="30" />
-<img src="https://notfound404.dev/images/svg/c.svg" width="30" height="30" />
-<img src="https://notfound404.dev/images/svg/react.svg" width="30" height="30" />
+<img src="https://notfound404.dev/assets/images/svg/kotlin.svg" width="30" height="30" />
+<img src="https://notfound404.dev/assets/images/svg/typescript.svg" width="30" height="30" />
+<img src="https://notfound404.dev/assets/images/svg/c.svg" width="30" height="30" />
+<img src="https://notfound404.dev/assets/images/svg/react.svg" width="30" height="30" />
 <img src="https://www.notfound404.dev/_next/image?url=%2F_next%2Fstatic%2Fmedia%2Fnextjs.dee1d794.png&w=640&q=75" width="30" height="30" />
   
