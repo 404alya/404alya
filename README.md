@@ -1,4 +1,4 @@
-<img width="400" height="300" alt="original-d9607d0ca6d1538b927d64e6eaf33726" src="https://github.com/user-attachments/assets/c4d0b852-3431-4408-8996-afe037672854" />
+<img width="450" height="280" alt="redvid_io_opportunity_rover_s_final_message_glitched" src="https://github.com/user-attachments/assets/dcfdafd8-0d43-4b47-ad47-ba33f3f5a992" />
 
 
 *20 yo "full-stack" and "hobbyist C" developer*
