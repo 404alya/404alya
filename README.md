@@ -12,11 +12,14 @@
 
 
 ```
-Lies, well, it's all lies
-Why did we waste our fucking lives just to survive?
-Deny, deny
-With all the gluttony in sight, it sets a price
-I hope you don't know
-The hunger gnawing in my mind
-Repeats in time
+Wait, this cannot be the end I wanted
+Is it all a mistake?
+I'm a product sardonic, made to market
+Everyone is fake
+And the record label owns me like a fucking pimp
+Die, why?
+Well, I wanted to die, I tried
+'Cause I've always said that I'm okay
+Die, I'm alright
+And I wanted to die, I wanted to
 ```
