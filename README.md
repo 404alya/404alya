@@ -11,3 +11,16 @@
 - Stack overflow: https://stackoverflow.com/users/22740544/404nnotfoundd
 
 
+```
+Masochist conviction, I'm a contradiction
+I'm the animal, the primitive with teeth of ammunition
+A God without a father, I'm the holy water
+I'm the first, the last, the everything
+Your one and only remedy
+I, I-I-I know I need to stop and contain it
+But you never wanna explain it
+Feeling numb and fucking frustrated
+I, I-I-I want it now, you know I'm impatient
+It's a matter of time, the enslavement
+Come devaluate me
+```
