@@ -11,15 +11,3 @@
 - Stack overflow: https://stackoverflow.com/users/22740544/404nnotfoundd
 
 
-```
-Wait, this cannot be the end I wanted
-Is it all a mistake?
-I'm a product sardonic, made to market
-Everyone is fake
-And the record label owns me like a fucking pimp
-Die, why?
-Well, I wanted to die, I tried
-'Cause I've always said that I'm okay
-Die, I'm alright
-And I wanted to die, I wanted to
-```
