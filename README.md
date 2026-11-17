@@ -12,15 +12,13 @@
 
 
 ```
-Masochist conviction, I'm a contradiction
-I'm the animal, the primitive with teeth of ammunition
-A God without a father, I'm the holy water
-I'm the first, the last, the everything
-Your one and only remedy
-I, I-I-I know I need to stop and contain it
-But you never wanna explain it
-Feeling numb and fucking frustrated
-I, I-I-I want it now, you know I'm impatient
-It's a matter of time, the enslavement
-Come devaluate me
+Cause you know what a girl like me really needs right now
+Cause you know what a girl like me really needs right now
+I kinda want you to stay
+Give me the sweetest taste
+I like you, guy
+Your mind is ever-changing
+I like when you cry
+Cause your eyes
+Are so entertaining
 ```
